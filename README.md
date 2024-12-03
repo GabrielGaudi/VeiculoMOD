@@ -15,3 +15,6 @@
 ![Imagem do WhatsApp de 2024-12-02 à(s) 20 22 16_0b90f6ad](https://github.com/user-attachments/assets/612308ae-c6a0-4308-8795-1bc842650dd3)
 ![Imagem do WhatsApp de 2024-12-02 à(s) 21 27 36_142c6853](https://github.com/user-attachments/assets/7e2ae77f-6a86-41de-a867-c2c7fcb1e418)
 ![Imagem do WhatsApp de 2024-12-02 à(s) 21 27 48_770b6de7](https://github.com/user-attachments/assets/90104a1e-76e9-460c-b7c5-c0c0ba520dde)
+
+# Participação da dupla
+- A dupla fez a atividade junta, sempre se comunicando. O Gaudí ficou responsável pela documentação do trabalho, enquanto Christian fez o modelo seguindo a imagem de referência.
